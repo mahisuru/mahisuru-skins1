@@ -12,3 +12,6 @@
 
 ## [**azer8duskmsu**](https://drive.google.com/file/d/1BXglbTvmfFju8YkH4acijJ7sFMrI-_I7/view?usp=sharing)
 ![](https://github.com/mahisuru/mahisuru-skins1/assets/85743867/e17506d2-89f9-4eb6-bacf-d6beb75287ca)
+
+## [**rohulk kingling**](https://drive.google.com/file/d/1j40W1BnFVqg2Jr9sAzyj7KRhiuBW2ylW/view?usp=sharing)
+![](https://github.com/mahisuru/mahisuru-skins1/assets/85743867/af172420-11e3-48e5-a288-ac32f232978c)
